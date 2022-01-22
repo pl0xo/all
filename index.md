@@ -8,5 +8,6 @@
 
 ![http://www.777icons.com/libs/folder/16x16/lcd.gif](http://www.777icons.com/libs/folder/16x16/lcd.gif)[<font size="3"> мемы скатились и вот почему</font>](https://pl0xo.github.io/msivp3/)
 
+![http://www.777icons.com/libs/folder/16x16/lcd.gif](http://www.777icons.com/libs/folder/16x16/lcd.gif)[<font size="3"> Крипер 2004 боженька. Но почему? Сейчас мы разберем это.</font>](https://pl0xo.github.io/unnamed3)
 
 Статьи: **3**
