@@ -2,11 +2,11 @@
 
 # Перемещение по статьям
 
-![http://www.777icons.com/libs/folder/16x16/lcd.gif](http://www.777icons.com/libs/folder/16x16/lcd.gif)[<font size="5">5 способ съесть своё говно](https://pl0xo.github.io/5-sposobov-siest-svoiyo-govno1/</font>)
+![http://www.777icons.com/libs/folder/16x16/lcd.gif](http://www.777icons.com/libs/folder/16x16/lcd.gif)[<font size="3"> 5 способ съесть своё говно</font>](https://pl0xo.github.io/5-sposobov-siest-svoiyo-govno1/)
 
-![http://www.777icons.com/libs/folder/16x16/lcd.gif](http://www.777icons.com/libs/folder/16x16/lcd.gif)[<font size="5">Попа кака](https://pl0xo.github.io/popa-kaka2/</font>)
+![http://www.777icons.com/libs/folder/16x16/lcd.gif](http://www.777icons.com/libs/folder/16x16/lcd.gif)[<font size="3"> Попа кака</font>](https://pl0xo.github.io/popa-kaka2/)
 
-![http://www.777icons.com/libs/folder/16x16/lcd.gif](http://www.777icons.com/libs/folder/16x16/lcd.gif)[<font size="5">мемы скатились и вот почему</font>](https://pl0xo.github.io/msivp3/)
+![http://www.777icons.com/libs/folder/16x16/lcd.gif](http://www.777icons.com/libs/folder/16x16/lcd.gif)[<font size="3"> мемы скатились и вот почему</font>](https://pl0xo.github.io/msivp3/)
 
 
 Статьи: **3**
