@@ -52,6 +52,7 @@ function FindOnPage(inputId) {//ищет текст на странице, в п
 
 ![http://www.777icons.com/libs/folder/16x16/lcd.gif](http://www.777icons.com/libs/folder/16x16/lcd.gif)[<font size="3"> Фанфик о Иисус Хрестос#5905 и Айзек#2413</font>](https://pl0xo.github.io/fanfik5)
 
-Статьи: **4**
+Статьи: **5**
 
+​
 ❓ [Как создать статью](https://pl0xo.github.io/add/)
